@@ -12,7 +12,7 @@
 <br>
 
 # Available Now..😎
-## VMware vSphere 6 and 7 ESXi Licence Keys Free!! : [👉Click Here👈](https://github.com/hegdepavankumar/VMware-ESXi-License-Keys)
+
 
 <br>
 
@@ -72,7 +72,7 @@ also, I added more keys and MORE KEYS:
 
 ## Note
 
-VMware vSphere 6 and 7 ESXi Licence Keys Free!! : [Get it Here](https://github.com/hegdepavankumar/VMware-ESXi-License-Keys)
+Use Feel Free
 <br> 
 <hr>
 <div align="center">
